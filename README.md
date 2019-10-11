@@ -1,6 +1,7 @@
 # 香港民族論 Hong Kong Nationalism
 
-Er ling yi san nian du Xianggang da xue xue sheng hui Xue yuan 二零一三年度香港大學學生會學苑, ed., Xianggang min zu lun 香港民族論 [On Hong Kong As A Nation]/[Hong Kong Nationalism] (Hong Kong: Xianggang da xue xue sheng hui, 2014). ISBN: 9789881363107
+Er ling yi san nian du Xianggang da xue xue sheng hui Xue yuan ji6 ling4 jat7 saam1 nin4 dou6 hoeng1 gong2 daai6 hok6 hok6 saang1 wui2 hok6 jyn2 二零一三年度香港大學學生會學苑, 
+ed., Xianggang min zu lun hoeng1 gong2 man4 dzuk9 loen6 香港民族論 [On Hong Kong As A Nation]/[Hong Kong Nationalism] (Hong Kong: Xianggang da xue xue sheng hui, 2014). ISBN: 9789881363107
 
 <img src="https://www.history.ubc.ca/faculty/lshin/research/images/ill-hong-kong-hku-hk-nation.jpg" alt="bookcover" class="center">
 
